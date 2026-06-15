@@ -15,6 +15,10 @@
 </p>
 
 <p align="center">
+   under 14 and over 25 either dni or iwc (unless ive known u for a long time LOL)
+</p>
+
+<p align="center">
    i have audhd and dyslexia , so try bear with me as i might come off as dry or slow whatever
 </p>
 
