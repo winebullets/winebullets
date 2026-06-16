@@ -33,5 +33,5 @@
 </p>
 
 <p align="center">
-   anyway thats enough words for a little introduction right.. ok
+   anyway thats enough words for a brief introduction right.. ok
 </p>
