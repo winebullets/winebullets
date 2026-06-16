@@ -17,6 +17,10 @@
 </p>
 
 <p align="center">
+   open to c+h always , come cuddle when im alone or ask when im with a friend
+</p>
+
+<p align="center">
    although if i do have any 'dni' on my name , thats when you leave me alone
 </p>
 
