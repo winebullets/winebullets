@@ -13,11 +13,11 @@
 </p>
 
 <p align="center">
-   im really sociable , come interact anytime you'd like
+   open to c+h always , come cuddle when im alone or ask when im with a friend
 </p>
 
 <p align="center">
-   open to c+h always , come cuddle when im alone or ask when im with a friend
+   im really sociable , come interact anytime you'd like
 </p>
 
 <p align="center">
