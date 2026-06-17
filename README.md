@@ -5,7 +5,7 @@
 
 
 <p align="center">
-   i go by cj , yeah like verbally pronounced 'seejay' , cool right i know
+   i go by cj , yeah like verbally pronounced 'seejay' , cool amiright
 </p>
 
 <p align="center">
@@ -21,7 +21,11 @@
 </p>
 
 <p align="center">
-   although if i do have any 'dni' on my name , thats when you leave me alone
+   do keep in mind i usually might come off as 'cold' or 'dry' but don't take it personally ok? ok
+</p>
+
+<p align="center">
+   although if i do have any 'dni' on my name , thats when you leave me alone or i might actually start purposely getting dry
 </p>
 
 <p align="center">
