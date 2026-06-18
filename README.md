@@ -13,6 +13,10 @@
 </p>
 
 <p align="center">
+   cool fact: i have the same birthday as dazai ( june 19th ) 
+</p>
+
+<p align="center">
    open to c+h always , come cuddle when im alone or ask when im with a friend
 </p>
 
@@ -41,5 +45,5 @@
 </p>
 
 <p align="center">
-   anyway thats enough words for a brief introduction right.. ok
+   wow thats a lot of words and i swear i wont add anymore information
 </p>
