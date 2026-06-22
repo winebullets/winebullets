@@ -7,5 +7,5 @@ wip
 <p></p>
 
 <p align="center">
-   ponytown's [beast dazai](https://github.com/title-town)
+    [beast dazai](https://github.com/title-town)
    <p></p>
