@@ -6,4 +6,6 @@
 wip
 <p></p>
 
-[beast dazai](https://github.com/title-town)
+<p align="center">
+   ponytown's [beast dazai](https://github.com/title-town)
+   <p></p>
