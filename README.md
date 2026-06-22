@@ -45,5 +45,9 @@
 </p>
 
 <p align="center">
-   wow thats a lot of words and i swear i wont add anymore information
+   wow thats a lot of words and i swear i wont add anymore writing 
+</p>
+
+<p align="center">
+   BUT read prns page for extra information that u should know
 </p>
