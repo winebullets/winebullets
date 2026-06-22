@@ -6,6 +6,5 @@
 wip
 <p></p>
 
-<p align="center">
-    [beast dazai](https://github.com/title-town)
-   <p></p>
+
+
