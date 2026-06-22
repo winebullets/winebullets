@@ -4,5 +4,8 @@
 
 <p align="center">
 wip
-<p></p>
+<p>
 
+<p align="center">
+ponytown's <a href="https://github.com/title-town">beast dazai</a>
+<p>
