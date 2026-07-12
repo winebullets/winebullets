@@ -21,3 +21,7 @@ ponytown's <a href="https://github.com/title-town">beast dazai</a>
 <p align="center">
 also featured in @pt-players ! -- > <a href="https://github.com/pt-players">pretty ponies</a>
 </p>
+
+<p align="center">
+platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
+</p>
