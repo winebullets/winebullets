@@ -3,7 +3,9 @@
 </p>
 
 
-
+<p align="center">
+platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
+</p>
 
 <p align="center">
    <img width="736" height="414" alt="72c0f39730a1d9833aec6d70ce97c9b8" src="https://github.com/user-attachments/assets/2003c16f-931d-462a-a8f3-1871c00aaf3e" />
@@ -22,6 +24,3 @@ ponytown's <a href="https://github.com/title-town">beast dazai</a>
 also featured in @pt-players ! -- > <a href="https://github.com/pt-players">pretty ponies</a>
 </p>
 
-<p align="center">
-platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
-</p>
