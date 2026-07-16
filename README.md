@@ -2,6 +2,9 @@
   <img src="https://komarev.com/ghpvc/?username=winebullets&color=81521E&style=flat-square&title=mazerunners&label=mazerunners" alt="mazerunners" />
 </p>
 
+<p align="center">
+call me cj or thomas 
+</p>
 
 <p align="center">
 platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
@@ -13,7 +16,11 @@ platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
 </p>
 
 <p align="center">
-  officially diagnosed autism & adhd . please be patient with me
+officially diagnosed autism & adhd . please be patient with me
+</p>
+
+
+
 <p align="center">
 wip
 <p>
