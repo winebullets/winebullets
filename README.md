@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-call me cj or thomas 
+#newtmas
 </p>
 
 <p align="center">
