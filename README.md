@@ -22,7 +22,7 @@ officially diagnosed autism & adhd . please be patient with me
 
 
 <p align="center">
-wip
+i will add more to this repository i swear i'll make it pretty JUST YOU WAIT 
 <p>
 
 <p align="center">
