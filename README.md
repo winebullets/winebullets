@@ -22,7 +22,7 @@ officially diagnosed autism & adhd . please be patient with me
 
 
 <p align="center">
-i will add more to this repository i swear i'll make it pretty JUST YOU WAIT 
+why do people get surprised when i say im a cisman like dude HUH im just a chill guy on a stupid ponygame guys
 <p>
 
 <p align="center">
