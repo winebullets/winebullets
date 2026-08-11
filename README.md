@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=winebullets&color=81521E&style=flat-square&title=mazerunners&label=mazerunners" alt="mazerunners" />
+  <img src="https://komarev.com/ghpvc/?username=winebullets&color=000000&style=flat-square&title=mazerunners&label=mazerunners" alt="mazerunners" />
 </p>
 
 <p align="center">
