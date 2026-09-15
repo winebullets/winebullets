@@ -16,7 +16,7 @@ platonically taken by <a href="https://github.com/ranpwiz">@ranpwiz</a>
 </p>
 
 <p align="center">
-officially diagnosed autism & adhd . please be patient with me
+i have diagnosed audhd and suspected dyslexia! please be patient with me
 </p>
 
 
