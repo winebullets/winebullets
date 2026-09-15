@@ -22,7 +22,7 @@ i have diagnosed audhd and suspected dyslexia! please be patient with me
 
 
 <p align="center">
-why do people get surprised when i say im a cisman like dude HUH im just a chill guy on a stupid ponygame guys
+i’m a cisgender guy who plays a pixelated game for fun ok? don’t be weird and neither will i ok?
 <p>
 
 <p align="center">
